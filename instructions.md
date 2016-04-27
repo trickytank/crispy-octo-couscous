@@ -1,5 +1,5 @@
 - Buy eight-legged sea creatre 
 - Grill sea creatre
 - Cook couscous in the way one is expected to prepare couscous
-- When sea creatre is cripsy, throw into cooked couscous
+- When sea creature is cripsy, throw into cooked couscous
 - Cry, as you are unsure as to which herbs and spices would have made this much better
